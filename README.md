@@ -1,0 +1,1 @@
+# monopoly-constitution-2025
